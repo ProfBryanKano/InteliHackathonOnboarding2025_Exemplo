@@ -48,8 +48,6 @@
 8. **Qualidade da Apresentação:**  
    O conteúdo tem boa qualidade de som e imagem, e o apresentador comunica com clareza e confiança?  
 
----
-
 ## **🗣️ Estilo de Comunicação**  
 
 - **🔍 Profissional e Objetivo:**  
