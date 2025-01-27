@@ -2,7 +2,6 @@
 
 ### **🔗 Link do Agente GPT:**  
 > [Análise de Pitch](#https://chatgpt.com/g/g-679764e8ccfc81918a4f4f2b571288e1-inteli-hackathon-onboarding-2025-exemplo)
-
 ---
 
 ## **👥 Integrantes do Grupo**  
